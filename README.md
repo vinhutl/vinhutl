@@ -8,7 +8,7 @@
 
 ###
 
-<p align="left">- I'm a student who enjoys developing websites and especially unblocked game sites that you would enjoy (if you werent a school admin), I'm also the creator of Night! ('0') (you should check it out). If you have any questions please contact me. Thanks!</p>
+<p align="left">-!</p>
 
 ###
 
